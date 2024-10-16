@@ -1,4 +1,4 @@
-Hi, I’m Sesh! 👋
+Hi, I’m Sesha! 👋
 
 👀 I’m interested in: Data analytics, machine learning, Python, and uncovering patterns that drive business growth.
 
