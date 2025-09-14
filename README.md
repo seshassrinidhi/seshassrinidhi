@@ -6,7 +6,7 @@ Hi, I’m Sesha! 👋
 
 💞️ I’m looking to collaborate on: Data projects that involve customer behavior analysis, sales trends and building insightful dashboards.
 
-📫 How to reach me: tseshassrinidhi@gmail.com
+📫 How to reach me: srinidhikamakshi@gmail.com
 
 😄 Pronouns: SHE
 
